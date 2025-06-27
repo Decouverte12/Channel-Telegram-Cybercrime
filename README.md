@@ -1,4 +1,4 @@
-# Channel-Telegram-Cybercrime
+# Channel-Telegram-Cybercrime-Report
 Cannal telegram fraud offering various services as well as databases and tutorials to scam people
 Here is a recently opened channel, a French channel offering fraudulent internet pages to scam people as well as combos and data.
 
